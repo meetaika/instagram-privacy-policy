@@ -73,8 +73,8 @@ We may update this Privacy Policy to reflect changes in our practices or legal r
 
 If you have questions about this Privacy Policy or your personal information, please contact us at:
 
-- Email: [YOUR EMAIL ADDRESS]
-- Instagram DM: @[YOUR INSTAGRAM HANDLE]
+- Email: aika.li@yahoo.com
+- Instagram DM: @meetaika
 
 ### 10. Legal Basis for Processing
 
